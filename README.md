@@ -21,4 +21,5 @@ beansclub
 5. PREMIERING ON DISMISS YOURSELF 15th July, 2PM PST
 6. or 15.07.2025
 7. or 15th July on DISMISSYOURSELF
-8. A Bunch of eye candy, transport symbols, dots, 
+8. A Bunch of eye candy, transport symbols, dots.
+9. If you want use the PHOTOS provided, even little cropped squares of the artist sprinkled or in a grid would b dope. meow
